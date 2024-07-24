@@ -16,7 +16,7 @@
 
 ### 📫 How to Reach Me
 - Email: sourabhkunjir8@gmail.com
-- [LinkedIn](https://www.linkedin.com/in/sourabh-kunjir)
+- [LinkedIn](https://www.linkedin.com/in/sourabh-kunjir-ba750631b/)
 
 ### ⚡ Fun Fact
 - I love exploring new tech gadgets.
